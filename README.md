@@ -1,0 +1,1 @@
+# lingvistyka_lab2
